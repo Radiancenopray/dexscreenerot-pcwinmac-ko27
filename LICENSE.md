@@ -1,4 +1,4 @@
-# 
+# Officiel dexscreener sniper bot modèles pour Mac OS | Avancé dexscreener sniper bot modèles pour PC Windows. Avec endpoints RPC privés et trading en temps réel — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
